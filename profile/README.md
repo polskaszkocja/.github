@@ -1,8 +1,8 @@
 Czas na starcie Polska - Szkocja. Rezultat tego spotkania przesądzi o tym, która z drużyn zachowa szanse na pozostanie w Lidze Narodów UEFA. Dla której z reprezentacji będzie to lepszy wieczór? Relacja live i wynik na żywo meczu Polska - Szkocja na Polsatsport.pl.
 
-NA ŻYWO ::: https://bestones.icu/polskaszkocja/
+NA ŻYWO ::: https://bestones.icu/nationsleague/
 
-NA ŻYWO ::: https://bestones.icu/polskaszkocja/
+NA ŻYWO ::: https://bestones.icu/nationsleague/
 
 Do poniedziałkowej rywalizacji Biało-Czerwoni przystąpią po rozczarowującym występie w starciu z Portugalią. Podopieczni Michała Probierza przegrali w Porto aż 1:5. O ile do przerwy Polacy prezentowali się całkiem obiecująco, tak po zmianie stron kompletnie się posypali. Faworytami spotkania byli piłkarze z Półwyspu Iberyjskiego, ale postawa reprezentantów Polski pozostawiła wiele do życzenia. 
 
